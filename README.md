@@ -1,6 +1,6 @@
 - 👋 Oii! Eu sou Rafaela Santos
 - 💞️ Formanda em Ciências Contábeis
-- 😊 Tranbalho na área Contábil/Fiscal desde 2012
+- 😊 Trabalho na área Contábil/Fiscal desde 2012
 - 🌱 Atualmente estudante de Análise e Desenvolvimento de Sistemas
 
 
